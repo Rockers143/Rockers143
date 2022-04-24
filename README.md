@@ -1,10 +1,23 @@
-- 👋 Hi, I’m @Rockers143
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m Need Someone help to hack... 
-- 📫 Insta:suganthSrini... 
+- 👋 Hi @Rockers (Suganth Srini)... 
 
-<!---
-Rockers143/Rockers143 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+$ Congratulations... 
+
+$ We Are Happy To Tell..
+ [Now Itself] You Are A, 
+ "Grey Hat Hacker"
+
+$ Hack Is A Devil => You only deside Good Or Bad. 
+
+$ Stay Always Ethical !!! 
+
+$ We Are Always keep A Support To You 
+ And All New Beginners... 
+
+$ The Hack Is Legal You Don't Use illegal... 
+
+$ Thank You For Your Support!!! 
+
+
+                                 $_Issued By:  
+                                (HACK Report) 
+                               Grey Hat Hacker
